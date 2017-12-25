@@ -10,7 +10,7 @@ Ha isku dayin in aad dadka hadal badan kusoo jiidato, marwalboo hadalkada bato w
 
 Qofka bin'aadanka wixi qalbiga kujiro qof ogaan karto majirto, laakiin qofka muqalkisa kore ayaa lagu tiriyaa. 
 
-1: Qofki wadaad u eg, wadaat ayas ku tirinaysaa, laakiinn qalbigisa Illah bes baa og
+1: Qofki wadaad u eg, wadaat ayas ku tirinaysaa, laakiinn qalbigisa Illah bes baa og.
 2: Qofki ciyaal suuq u eg, waxaad ku tirinaysaa ciyaal suuq, laakin qalbigisa Illah bes baa og.
 
 
