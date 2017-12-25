@@ -12,4 +12,4 @@ Qofka bin'aadanka wixi qalbiga kujiro qof ogaan karto majirto, laakiin qofka muq
 
 Falsafi shiines ee HAN FEI-tzu ayaa wuxuu dhahay, weliga ha dhaqdhaqaajin faruuryahada iyo ilkahaada, marwalboo oo aan afkayga isku xiro dadka kale ayaa hadla, kadib waxaan fahmaa waxay damacsanyihin.
 
-XAQIIQ: Af daboolan waa dahab.
+AF DABOOLAN WAA DAHAB?
